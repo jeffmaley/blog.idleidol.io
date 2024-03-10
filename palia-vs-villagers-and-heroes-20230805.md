@@ -1,0 +1,5 @@
+Title: Palia vs Villagers and Heroes
+Date: 2023-08-05 11:00
+Category: Thoughts
+
+Just a quick post today. I've been playing the Palia beta and I'm really enjoying the casual life-skilling, including the housing. For those who haven't played it, it's a lifeskilling sim with instanced housing and small server caps. Whether or not it's really an mmmorp is a debate for another time, but the actual gameplay is satisfying. I unlocked planting and added some crops and this is where the comparison to Villagers and Heroes comes in. They both have a similar mechanic in that you plant, water, and wait. The actual gameplay of planting is nearly identical when comparing to V&H on PC, but V&H mobile is much more streamlined. This is true in general for V&H, but it really becomes apparent with planting and livestock. The PC version isn't really that much more cumbersome than PC, but it feels much more so because of how easy it is on mobile. I wish Mad Otter Games gave as much attention to their PC client as their mobile. Cross-play games are still uncommon and good ones even more so. The experience should be the same on both.
