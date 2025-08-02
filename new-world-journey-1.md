@@ -1,0 +1,17 @@
+Title: My New World Journey, Part 1
+Date: 2025-02-10 14:00
+Category: Journeys
+
+I picked up New World when it launched and generally enjoyed it. The aesthetic was interesting, the combat was fun, and the gathering and crafting were epic. I dropped it at some point for other games, but I often thought about coming back. When they relaunched over the fall of 2024 with their semi-updated version, I came back and I've been having a blast since.
+
+Dubbed "Aeturnum", the relaunch purports to lean into the ARPG side more, but I can't say that I've really experienced that. It feels largely like the original game, although the leveling seems significantly faster. I really like the character creation with its suggestion of weapon combos to achieve a class. While still classless and allowing you to equip any weapon combo, the suggestions are a great starting point. I went with greatsword and blunderbuss. The greatsword I knew would be fun (I'd really enjoyed it in Throne and Liberty), but I was mixed on the blunderbuss. After playing quite, I rather like the blunderbuss. You can snipe (sort of; the distance isn't far, but it's scoped) and launch an explosive. It's a fun weapon to use.
+
+The combat is much the same. I'm wearing heavy armor, so I can take a lot of abuse. I tend to use blocking more than dodging. Swinging the big sword is very gratifying and I really enjoy walloping enemies with it. I feel powerful when using the greatsword, which is what I was looking for. I do miss gap-closers, but I've not run into that many action-combat MMOs that support them. 
+
+While the combat is fun, the real fun (for me) is in the gathering and crafting. Mining, harvesting, chopping down trees, and other gathing is super satisfying and engaging. It's honestly hard to skip a harvestable node; I sometimes have to remind myself that I have other tasks to complete. Crafting is likewise enjoyable. There are tons of recipes and you can create furniture and other housing items in addition to the usual weapons and armor. It doesn't have the whimsy of Gnomish Engineering from WoW, but you can create and play musical instruments, which is very cool. In fact, my character is level 52 and I'm not very far in the main story quest because I'm doing so much gathering/crafting and side quests.
+
+The story is where New World is weakest. The Aeturnum update helped considerably by adding some simple cutscenes to explain the lore and background story, but it doesn't have the grandiose, "Save the World!" feeling as games like WoW or FFXIV. On the other hand, being smaller and tighter makes the game feel more accessible, in a way. You're not trying to save the world; you're trying to figure out how to prevent an island from being swallowed by darkness.
+
+Housing is important to me and I like how New World does it. The houses are instanced, but accessed from the town. It still sort of feels like a neighborhood in the sense that you go into your house from the street, but it is instanced and isolated. There are several layouts, with some including a second story and a garden. There are plenty of items to decorate with, including a number of seasonal items and pets.
+
+Do I think New World Aeturnum is the best MMO out there right now? No, it's but it's the best choice for *me*. I am really enjoying it. I'm not rushing; I'm taking my time and getting into the depths of the journey. I don't know much about end game, but end game for me will be about crafting, so I think I'll have plenty to do. See you in Aeturnum!

@@ -1,0 +1,17 @@
+Title: New World vs World of Warcraft
+Date: 2024-12-23 15:00
+Category: Thoughts
+
+I've started playing New World and WoW lately and thought I'd discuss why.
+
+# World of Warcraft
+WoW is in the middle of its 20th anniversery event. That's initially what drew me back. I only started playing in 2009 or so, during WotLK, but I've played it on and off since. I've never been much for raiding, although I did enjoy it a bit in both WotLK and Legion. Same for Mythics. I've done them, but they're not my cup of tea. I like collecting things and achievements and leveling alts. WoW is *very* alt-friendly so it suits me well in that regard. I love the class distinction in WoW and how classes are more than just a collection of different attacks, but also have unique abilities that aren't combat. Mages have teleports and warlocks have water-breathing. They're fun and neat and really give a specific "feel" to a given class. Combat itself is also enjoyable, with different classes having pretty unique styles and flows, whether it's the cooldown-watching of a Death Knight or the famous three-button rotation of an Arcane Mage. The lore is in-depth with dozens and dozens of books exploring every facet of Azeroth's history, including some really neat takes on creation.
+The cartoony-ness can be a turn off, but I find it charming. The usual complaints are about subscription costs and monetization, poor balance, and unimagintive content. There's some truth to those complaints, but as a casual player I've never had any issues. I'm not saying everyone should like WoW; I'm saying that *I* like WoW.
+
+#New World
+New World is a polar opposite of WoW in that it has action combat and more realistic graphics. It certainly isn't as lore-rich as WoW, but it also doesn't have decades of Warcraft lore to draw from. The story in New World is interesting and very different in setting, even if the over-arching themese are similar. The aesthetic of New World is one of the more compelling aspects as I've not seen it in another MMO. Instead of traditional fantasy elements, the vibe is, well, New World, as in what people and places looked like during the settling of the US by European colonists. This really makes the game stand out from others, although if you're not a big fan of that atmosphere, there aren't really any options to change it. All the looks, even in the store, adhere to the same feel.
+New World is classless and abilities are tied to the equipped weapon. Classless mmos aren't new and New World does it very similarly to others (eg: Elder Scrolls Online), but it doesn't have a traditional mage or priest class. There are magic staves and magic gloves that provide mage- and priest-like abilities, but they play very differently. Melee classes are what you'd expect. One odd omission is that there is no dual-wielding. I would love to see Amazon Game Studios add dual-wielding in the future.
+Crafting and housing are another area where New World is in sharp contrast to WoW. A given character can do every gathering and crafting profession. The gathering is much more satisfying in New World; you can chop down trees and they actually fall. Housing is instanced, but the instances are entered from the city in which the house exists, so there's still a bit of a local neighborhood feel.
+
+#Final Thoughts
+Both games are fun to play and engaging with plenty of activities. It's nice to have another game to switch to when I get burnt out on one, especially since they're so different.
